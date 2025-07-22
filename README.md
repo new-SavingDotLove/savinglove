@@ -2,7 +2,7 @@
 
 saving.love <br>
 https://saving.love/ <br>
-How to be saved, for Heaven. <br><br>
+How to be saved, for Heaven... according to the gospel. <br><br>
 
 No donations or tithes accepted. No profits are made. No income’s earned. <br><br><br><br><br> 
 
